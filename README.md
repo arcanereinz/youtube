@@ -2,7 +2,7 @@ How to Re-Trigger One-Shots on the Traktor Kontrol S2 MK2 (Part 1 of 2):
 https://www.youtube.com/watch?v=pQ5HRWAtw3c
 
 How to Re-Trigger One-Shots on the Traktor Kontrol S2 MK2 (Part 2 of 2):
-https://www.youtube.com/watch?v=pQ5HRWAtw3c
+https://www.youtube.com/watch?v=dKs0Dx75RIk
 
 
 Download Traktor Pro custom mapping file:
